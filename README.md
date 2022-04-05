@@ -1,1 +1,1 @@
-Let's find the ####.
+WOW! AMAZING STORY
